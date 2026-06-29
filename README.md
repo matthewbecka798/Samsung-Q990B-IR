@@ -1,0 +1,2 @@
+# Samsung-Q990B-IR
+IR SOUNDBAR REMOTE
